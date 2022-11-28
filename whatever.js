@@ -1,0 +1,1 @@
+ stonks buy sell trade
